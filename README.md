@@ -1,0 +1,3 @@
+# blogyorupekr
+
+> JUST REDIRECT
